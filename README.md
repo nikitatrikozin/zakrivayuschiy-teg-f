@@ -1,1 +1,1 @@
-https://github.com/nikitatrikozin/zakrivayuschiy-teg-f
+https://nikitatrikozin.github.io/zakrivayuschiy-teg-f/
